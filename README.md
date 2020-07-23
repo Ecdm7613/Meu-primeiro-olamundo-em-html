@@ -1,0 +1,2 @@
+# Meu-primeiro-olamundo-em-html
+Dá um orgulho fazer algo que na verdade você achava que era possível apenas por "Deuses" e jamais por um ser humano!!! Pode não parecer nada, mas este nada muitos nem imaginam como começar, quem dirá concluir!!! Obrigado a todos que compartilham o conhecimento anonimamente, pois isso faz com que muitos, assim como eu, possam ter esperança e acreditar em uma nova guinada e chances no mundo do trabalho e, porque não, na vida!!!
